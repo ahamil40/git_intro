@@ -1,1 +1,2 @@
 Arjay Hamilton
+hamiltar@oregonstate.edu
